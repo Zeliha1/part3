@@ -1,1 +1,2 @@
 AÇIKLAMA DOSYASI
+wewewew
